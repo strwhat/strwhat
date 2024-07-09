@@ -1,7 +1,7 @@
 <p align="center">
-<img src="https://files.catbox.moe/weftbn.gif" 
-     width="250" 
-     height="150" />
+<img src="https://files.catbox.moe/24aoe6.png" 
+     width="169" 
+     height="169" />
 </p>
 
 <p align="center">
@@ -11,6 +11,6 @@
 <p align="center">
 problematic to some degree </p>
 <p align="center">
-  however i am NOT proship ew </p>
+  however i am NOT proship kek </p>
 <p align="center">
- no dni just no ppl -13</p>
+ no <b>dni</b> just no ppl -13</p>
