@@ -1,16 +1,22 @@
 <p align="center">
-<img src="https://files.catbox.moe/24aoe6.png" 
-     width="169" 
-     height="169" />
+<img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=52814815" 
+     width="300" 
+     height="20" />
 </p>
 
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery08/0d2fdfa5.gif?v=b2f08ae6"> <b><font color="red"> viktor </font></b>  15m 
+<img src="https://gifcity.carrd.co/assets/images/gallery78/8ddc28ed.gif?v=52814815" width="25" height="25" /> <b><font color="red">  viktor </font></b> 𖦹 2009 
 </p>
 
 <p align="center">
-problematic to some degree </p>
+unapologetically an edgelord </p>
 <p align="center">
-  however i am NOT proship kek </p>
+  problematic but not proship  </p>
 <p align="center">
- no <b>dni</b> just no ppl -13</p>
+<b>dni</b> if ur under 13, otherwise </p>
+<p align="center">
+i have none .. <b>PEDOPHILES KYS!!!</b> </p>
+
+<p align="center">
+<img src="https://gifcity.carrd.co/assets/images/gallery246/8da0d2ae.png?v=52814815" width="20" height="10" />
+</p>
