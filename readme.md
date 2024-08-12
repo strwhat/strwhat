@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery97/476d3b1c.gif?v=52814815" width="25" height="25" /> <b><font color="red">  viktor </font></b> 𖦹 2009 
+<img src="https://gifcity.carrd.co/assets/images/gallery97/476d3b1c.gif?v=52814815" width="10" height="10" /> <b><font color="red">  viktor </font></b> 𖦹 2009 
 </p>
 
 <p align="center">
