@@ -1,11 +1,11 @@
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery39/6130186d.gif?v=52814815" 
+<img src="https://gifcity.carrd.co/assets/images/gallery49/abc5acb3.png?v=52814815" 
      width="300" 
      height="20" />
 </p>
 
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery78/8ddc28ed.gif?v=52814815" width="25" height="25" /> <b><font color="red">  viktor </font></b> 𖦹 2009 
+<img src="https://gifcity.carrd.co/assets/images/gallery97/476d3b1c.gif?v=52814815" width="25" height="25" /> <b><font color="red">  viktor </font></b> 𖦹 2009 
 </p>
 
 <p align="center">
