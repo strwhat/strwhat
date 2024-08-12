@@ -9,6 +9,11 @@
 </p>
 
 <p align="center">
+<b>ONLY </b> ENG</p>
+<p align="center">
+learning esp.. </p>
+
+<p align="center">
 unapologetically an edgelord </p>
 <p align="center">
   problematic but not proship  </p>
