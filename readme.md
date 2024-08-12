@@ -9,9 +9,7 @@
 </p>
 
 <p align="center">
-<b>ONLY </b> ENG</p>
-<p align="center">
-learning esp.. </p>
+<b>ONLY </b> ENG / learning esp.. </p>
 
 <p align="center">
 unapologetically an edgelord </p>
