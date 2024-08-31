@@ -9,11 +9,11 @@
 </p>
 
 <p align="center">
-<b>ONLY </b> ENG / learning esp.. </p>
+<b>ONLY </b> eng / learning esp.. </p>
 
 <p align="center"> edgelord. i love my boyfriend </p>
 <p align="center">
-  problematic but not proship  </p>
+  'problematic' but not proship  </p>
 <p align="center">
 <b>dni</b> i have none kek </p>
 <p align="center">
