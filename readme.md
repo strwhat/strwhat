@@ -12,7 +12,7 @@
 <b>ONLY </b> ENG / learning esp.. </p>
 
 <p align="center">
-unapologetically an edgelord </p>
+unapologetically an edgelord nd i ♡ my boyf </p>
 <p align="center">
   problematic but not proship  </p>
 <p align="center">
