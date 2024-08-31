@@ -15,9 +15,8 @@
 <p align="center">
   problematic but not proship  </p>
 <p align="center">
-<b>dni</b> if ur under 13, otherwise </p>
+<b>dni</b> i have none kek </p>
 <p align="center">
-i have none .. <b>PEDOPHILES KYS!!!</b> </p>
 
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery246/8da0d2ae.png?v=52814815" width="20" height="10" />
