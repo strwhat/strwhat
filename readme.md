@@ -1,21 +1,20 @@
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery49/abc5acb3.png?v=52814815" 
-     width="300" 
-     height="20" />
+<img src="https://files.catbox.moe/2met5x.webp" 
+     width="400" 
+     height="150" />
 </p>
 
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery97/476d3b1c.gif?v=52814815" width="20" height="20" /> <b><font color="red">  viktor </font></b> 𖦹 2009 
+<b><font color="red">  viktor </font></b> ཐིཋྀ 09' 
 </p>
 
 <p align="center">
-<b>ONLY </b> eng / learning esp.. </p>
-
-<p align="center"> edgelord. i love my boyfriend </p>
+<b>strictly </b> eng / learning esp.. 
 <p align="center">
-  'problematic' but not proship  </p>
+     <p align="center">
+problematic but not proshit 
 <p align="center">
-<b>dni</b> i have none kek </p>
+<b>dni</b> none, it's all free game.. </p>
 <p align="center">
 
 <p align="center">
