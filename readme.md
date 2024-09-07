@@ -20,3 +20,5 @@ problematic but not proshit
 <p align="center">
 <img src="https://gifcity.carrd.co/assets/images/gallery246/8da0d2ae.png?v=52814815" width="20" height="10" />
 </p>
+
+![](https://komarev.com/ghpvc/?username=fujoshis&color=2e2e28)
