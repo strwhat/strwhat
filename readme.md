@@ -6,14 +6,7 @@
 
 <p align="center">
 <b>viktor</b> ཐིཋྀ '09 
-</p>
-
-<p align="center">
-luv making new friends come say hi
-<p align="center">
-     <p align="center">
-problematic but not proshipper garbage
-<p align="center">
+</p> 
 <b>dni</b> none, i will block if u weird me out </p>
 <p align="center">
 
