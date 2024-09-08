@@ -5,10 +5,17 @@
 </p>
 
 <p align="center">
-<b>viktor</b> ཐིཋྀ '09 
+<b>viktor</b> ཐིཋྀ 09 
 </p> 
-<b>dni</b> none, i will block if u weird me out </p>
+
 <p align="center">
+i rlly love yakuza Umm other things too
+</p> 
+
+
+<p align="center">
+<b>dni</b> none i'll block if u weird me out
+</p> 
 
 <h4 align="center">
 
