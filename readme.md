@@ -5,20 +5,19 @@
 </p>
 
 <p align="center">
-<b><font color="red">  viktor </font></b> ཐིཋྀ '09 
+<b>viktor</b> ཐིཋྀ '09 
 </p>
 
 <p align="center">
-<b>strictly </b> eng / learning esp.. 
+luv making new friends come say hi
 <p align="center">
      <p align="center">
-problematic but not proshit 
+problematic but not proshipper garbage
 <p align="center">
-<b>dni</b> none, it's all free game.. </p>
+<b>dni</b> none, i will block if u weird me out </p>
 <p align="center">
 
 <h4 align="center">
 
 ![](https://komarev.com/ghpvc/?username=fujoshis&color=2e2e28&label=ㅤstalkersㅤ)
-
 </h4> 
