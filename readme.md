@@ -8,6 +8,12 @@
 <b>viktor</b> ཐིཋྀ 09 
 </p> 
 
+</p>
+
+<p align="center">
+<b> eng/укр (learning)
+</p> 
+
 <p align="center">
 i rlly love yakuza Umm other things too
 </p> 
