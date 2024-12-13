@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://i.pinimg.com/736x/85/16/e4/8516e49c32227a8ba3e0459bfbb6453e.jpg" 
      width="400" 
-     height="150" />
+     height="200" />
 </p>
 
 <p align="center">
@@ -15,7 +15,7 @@
 </p> 
 
 <p align="center">
-i rlly love yakuza Umm other things too
+just a chill guy
 </p> 
 
 
