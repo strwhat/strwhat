@@ -5,7 +5,7 @@
 
 <h4 align="center">
 
-I am not chronically online so I do not care who interacts with me, whether that be problematic or not. My interests vary but feel free to strike up a convo in my whispers if my pony is an interest of yours aswell. If you take any issue to my existence just give me a good hard block I'm not looking to argue on a pixel horse game.
+I am not chronically online lol so I do not care who interacts with me, whether that be problematic or not. My interests vary but feel free to strike up a convo in my whispers if my pony is an interest of yours aswell. If you take any issue to my existence just give me a good ol' hard block (hide) I'm not looking to argue on a pixel horse game.
 
 <h4 align="center">
 
