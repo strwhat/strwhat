@@ -5,17 +5,11 @@
 
 <h4 align="center">
 
-not chronically online, anyone can interact.
-
-<h4 align="center">
-<h4 align="center">
-
-block/hide if you have a problem with me.
+no dni, anyone can interact
 
 <h4 align="center">
 
-
-![](https://komarev.com/ghpvc/?username=fujoshis&color=2e2e28&label=ㅤstalkersㅤ)
+![](https://komarev.com/ghpvc/?username=fujoshis&color=2e2e28&label=♤)
 </h4> 
 <p align="center">
 <a href="https://onepiece.atabook.org">sign my atabook</a>
